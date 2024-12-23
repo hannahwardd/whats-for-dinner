@@ -1,1 +1,1 @@
-# whats-for-dinner
+# whats-for-dinner app by Hannah :p
